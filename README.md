@@ -194,7 +194,7 @@ Crypto trading carries risk. Use responsibly.
 
 ## Support & Contact
 
-**Telegram:** [@idioRusty](https://t.me/idioRusty)
+**Telegram:** [RRR](https://t.me/microRustyme)
 
 ---
 
